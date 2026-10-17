@@ -1,0 +1,2 @@
+# ekklisiastikarita
+Εκκλησιαστικά Ρητά
